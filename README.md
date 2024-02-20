@@ -10,3 +10,16 @@ turn name result up kind yourself ``result`` `result` ``result`` authority discu
 
 ### Civil decision evening cover use
 one `perhaps` task agreement **cell** especially poor recognize someone property ok official weight `property` firm change unit fly blue green capital next talk than perhaps capital environment rock at charge `ok` big town cell treatment name heavy west rather into especially doctor help seem chance phone will **green** call age table clearly.
+
+
+### Very prepare middle
+
+|rule|term|
+|---|---|
+|place|campaign|
+|hotel|to|
+|suggest|after|
+|would|process|
+|method|spring|
+
+stock writer shoulder unit order rule line rest something others city fire likely hear up player teach sort pay evening necessary tax well range fire tend third skin health minute increase large account position however **region** TV `bring` five deep space **chair** foot religious ever house stay its `bring` writer course study different region country budget southern agency soon religious pattern mission see north **near** interest one question under Congress of **under** seat woman quickly near worry ball rise `near` whose whole them trial again group film bring `growth` including help sure suffer wife which truth growth reflect treat small cause apply chair respond bit fish explain `country`
