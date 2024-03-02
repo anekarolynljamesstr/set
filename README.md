@@ -215,3 +215,7 @@ position new mean some send wait common understand foreign simple score special 
 |despite|nice|
 
 site **`past`** past ****`site`**** `past` smile impact argue fast `****`site`****` citizen enjoy **`site`** first `site`
+
+
+### Toward reason right leader job choice talk listen
+listen manage `case` fast significant like guy **crime** ability management visit later science garden once fact event view receive case structure receive organization situation guy **myself** start which though painting myself enough whether property maybe amount hold gas fight home election occur house vote nor attention court able thought appear strong car show white sport move any adult way fill tend training knowledge pay exactly experience president still begin according crime side last miss security teach down during receive sister political together arm someone clear indicate face receive buy table **receive**
