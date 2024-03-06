@@ -55,3 +55,17 @@ money tree room analysis else get add husband strong computer that **modern** re
 
 #### Edge mind hundred significant let start drop watch material growth
 watch **watch** `**watch**` `practice.` ``practice.`` practice.
+
+
+# Policy painting
+
+|shoulder|meet|
+|---|---|
+|so|amount|
+|movie|short|
+|bit|agreement|
+|rest|rest|
+|heart|help|
+|health|artist|
+
+accept capital realize all consumer during magazine rock great treat hope hair mouth movement what reality executive `**computer**` `**computer**` education enough next eye computer its thought fact view change life **degree** religious boy **computer** child subject we spring mother energy rule ability but decade community response provide miss carry industry first from section technology ready at into however stand return fine act middle somebody receive outside sometimes see hundred born first degree `see` hour child compare fast gun prepare `subject` place much.
