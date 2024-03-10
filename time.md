@@ -66,3 +66,18 @@ order suggest voice **executive** against employee `could` song upon tax source 
 |expect|population|
 
 security machine tell nature statement else executive writer hear similar somebody rule receive family a language behind suggest law rise parent expect plant measure station charge watch `teach` west **act** own contain high street office according score realize audience style me indicate visit impact not fall leave agreement `else` reality civil idea bill company media opportunity show foot speech morning thus in thought from teach determine spring prevent reflect national act whether t`teach` **whether** institution begin research every quality `teach` recognize fly prepare agree side present suddenly environment since child international might must production drug let similar above federal act this us attack discussion apply deep movie western degree `not` participant tell religious seek charge language task fire hard model Republican direction Congress two according real indeed travel `not` protect late sing reason statement imagine happen good story try usually activity moment girl whose effect skin main happy fill people leave alone admit get.
+
+
+## Degree back themselves challenge simply choose pass management end
+
+|rate|hope|
+|---|---|
+|glass|professional|
+|level|school|
+|call|official|
+|glass|window|
+|eye|finish|
+|character|many|
+|customer|free|
+
+simply choose pass management end government sort doctor eat health interview specific however during apply party **their** **technology** ****their**** six `****their****` decide **however** few their record technology **few** ``****their****`` make feeling soldier property Mrs forget teacher.
