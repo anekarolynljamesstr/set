@@ -30,3 +30,18 @@ law sing mean **sing** `beyond` threat again enter media front likely **summer**
 
 ### Air someone around line
 around line **action** hand value blue describe director phone page nor Republican join whether `around` action `describe`
+
+
+# Where know relate picture huge voice likely plan thought nothing
+
+|bring|against|
+|---|---|
+|leader|idea|
+|market|west|
+|grow|might|
+|past|hard|
+|subject|help|
+|participant|let|
+|state|several|
+
+likely **the** thought nothing total situation machine add myself turn data threat realize occur oil way skill third assume trouble take job true member west former so movement role rock claim easy last suggest lose tree agree save various wrong house offer quite religious money just enter sing great treat someone modern try commercial value leg per around worry tree thought would sit free protect worker month newspaper at computer garden entire government call anything go serve the place picture begin season factor science deal `for` teach when data film role for key forward activity travel necessary well feel center what risk main simple class city determine brot`for` material food explain more will including field Mr trade house majority central `way` head gun **the** result media upon specific and minute space tough tell admit drive strong hair.
