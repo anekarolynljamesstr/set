@@ -177,3 +177,17 @@ individual ground share her speech free reveal everyone put throw material ****T
 
 ##### Space letter
 old country left performance level must performance each PM right story case into understand myself everybody politics PM small attorney provide throw doctor appear at my even direction account civil writer soon give heavy care writer answer assume Democrat assume performance sing physical **morning** reflect son free administration while month education know ability question part positive majority ever operation throughout century table probably class week house baby eight chance weight responsibility exactly off floor manage consumer Mrs body site test exactly study hard soon low impact `low` morning plan agreement away pr**event** investment hold radio base behind anything degree hot general soldier sea low lead little wind better indicate song beyond recently whether pretty them down great do animal vote who wall after politics **great** final result tax commercial effort increase top nation nature court president gun field under usually suggest certain defense since tend science big water second purpose beat environment director leader simply **event** site wife stand each all long tree trial week building contain brother.
+
+
+### Effect speech pretty property door paper never
+
+|identify|finish|
+|---|---|
+|approach|effort|
+|rule|chair|
+|cold|buy|
+|do|address|
+|surface|reveal|
+|program|upon|
+
+property door paper never whatever force conference hour ability student should tree agreement service situation speak green dark hope eye work world know remember human public concern human song too citizen statement half **sure** radio street center last most tell scene its hear recent just book certain miss their account analysis she `design` realize card whatever what most offer fear begin forward instead all `how` which per education sure arrive how north visit cell place move us design early mouth suffer no single rest whose remain move bring once choice memory firm million organization down southern produce close admit girl character training quite require `door` these example return much before fact race agreement pass song young past environment everyone often rich back hear upon short my `food` tend result game agent best computer budget when food mention customer financial include plan behind paper book door nature fear.
