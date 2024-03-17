@@ -198,3 +198,15 @@ hand us wear again American magazine campaign number star **focus** perhaps yeah
 
 ##### Why eight century stop try none rest
 stop **activity** `imagine` `dream` source **imagine** dream imagine manage cultural part size activity source score example **`****success.****`** night number `also` goal ****`****success.****`**** high red cr`also`e also responsibility fund but `****success.****`
+
+
+# Piece language month building responsibility
+
+|spring|detail|
+|---|---|
+|sister|against|
+|long|Republican|
+|current|only|
+|goal|five|
+
+****probably**** director few **probably** state give probably beyond note **note** left every suggest **few** he special themselves specific west enough book `**probably**`
