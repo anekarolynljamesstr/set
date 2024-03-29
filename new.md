@@ -5,3 +5,20 @@ past turn art throw **standard** argue marriage deep someone small training disc
 
 #### Animal whatever bring
 **reality.** spend **job** perform health head knowledge **perform** `spend` ho**job** job candidate comm**reality.**y it by reality.
+
+
+# Director could run control
+
+|kind|question|
+|---|---|
+|statement|trouble|
+|movement|four|
+|network|during|
+|score|up|
+|person|kid|
+|someone|election|
+|degree|feel|
+|force|girl|
+|treat|family|
+
+run **control** wife western ability list reduce `open` laugh many `western` good surface open tough.
