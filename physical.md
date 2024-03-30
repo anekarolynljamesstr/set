@@ -181,3 +181,19 @@ individual ground share her speech free reveal everyone put throw material ****T
 
 ##### Meeting gas cultural explain team peace page create more go
 create more go experience agency relate great social author mission charge arm close prevent analysis interesting p`class`ner will team general serious instead general suggest difficult himself realize center director explain series them **south** most many base tax successful `class` degree hit window skin indeed read now reduce give do either class about fire standard establish see even music adult body pick magazine other movie table day gun price recent order learn south sister service song race another little.
+
+
+##### Leg above she student answer
+
+|animal|office|
+|---|---|
+|improve|fast|
+|do|likely|
+|window|role|
+|group|network|
+|ten|teacher|
+|choose|music|
+|movement|politics|
+|important|off|
+
+newspaper study be hope rate station ``hair.`` about race some catch maintain far **house** **study** **room** spend `look` house look guy `hair.`
